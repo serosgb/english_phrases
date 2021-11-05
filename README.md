@@ -4,7 +4,7 @@
 
 ## HASTE MAKES WASTE and WASTE NOT WANT NOT
 
-<a href="" target="_blank">Video</a>
+<a href="https://www.youtube.com/watch?v=4q0Ba1gp_Y0" target="_blank">Video</a>
 
 [Transcript](transcripts/20211105/README.md)
 
@@ -18,7 +18,7 @@
 
 ## TO GET DUMPED and DOWN IN THE DUMPS
 
-<a href="https://www.youtube.com/watch?v=ivmoI2zfywI">Video</a>
+<a href="https://www.youtube.com/watch?v=ivmoI2zfywI" target="_blank">Video</a>
 
 [Transcript](transcripts/20211103/README.md)
 
