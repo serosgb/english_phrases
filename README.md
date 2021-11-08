@@ -1,6 +1,21 @@
 # Bob's Short English Lessons Compilation
 
-> Learn the English Phrases 
+> Learn the English Phrases
+
+
+## TO MAKE LIGHT OF and TO FEEL LIGHT-HEADED
+
+<a href="https://www.youtube.com/watch?v=0x6U6zrEjnY" target="_blank">Video</a>
+
+[Transcript](transcripts/20211108/README.md)
+
+### TO MAKE LIGHT OF
+
+..."It means you are less serious than you should be in that situation. You might say things that you even think are funny when something serious has just happened, you make light of the situation"...
+
+## TO FEEL LIGHT-HEADED
+..."This is something that happens sometimes when you stand up really quickly, you feel a little bit dizzy"...
+
 
 ## HASTE MAKES WASTE and WASTE NOT WANT NOT
 
