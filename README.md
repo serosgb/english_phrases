@@ -2,6 +2,20 @@
 
 > Learn the English Phrases
 
+## TIME CHANGE and INTERNAL CLOCK
+
+<a href="https://www.youtube.com/watch?v=DiEmPW-Ie8g&t=1s" target="_blank">Video</a>
+
+[Transcript](transcripts/20211110/README.md)
+
+## TIME CHANGE
+
+..."Time change happens in countries that observe Daylight Savings Time. We have one time during the summer months, and then mid fall, we shift our clocks, and then we have a one-hour difference, and time change happens usually in the middle of the night between Saturday and Sunday. "...
+
+## INTERNAL CLOCK
+
+..."We all use watches to tell time, but we also have an internal clock. We can kind of sense around what time it is, and right now, my internal clock is messed up."...
+
 
 ## TO MAKE LIGHT OF and TO FEEL LIGHT-HEADED
 
