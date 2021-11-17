@@ -2,6 +2,21 @@
 
 > Learn the English Phrases
 
+## ON PURPOSE and BY ACCIDENT
+
+<a href="https://www.youtube.com/watch?v=WIGm2QOTQUE" target="_blank">Video</a>
+
+[Transcript](transcripts/20211117/README.md)
+
+### ON PURPOSE
+
+..."When you do something on purpose, it means that you meant to do it. It means that you planned to do it."...
+
+### BY ACCIDENT
+
+..."When something happens by accident, it means that something occurred, something happened, and you didn't plan for that to happen. It was just an accident."...
+
+
 ## FLAT AS A PANCAKE and FLAT BROKE
 
 <a href="https://www.youtube.com/watch?v=g1LKxclZjac" target="_blank">Video</a>
