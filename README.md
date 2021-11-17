@@ -23,12 +23,12 @@
 
 [Transcript](transcripts/20211112/README.md)
 
-### FLAT AS A PANCAKE and FLAT BROKE
+### FLAT AS A PANCAKE
 
 ..."when you say something is flat as a pancake, it means that it is really flat"..
 
 
-### FLAT AS A PANCAKE and FLAT BROKE
+### FLAT BROKE
 
 ..."when you are flat broke, it means that you have no money in your wallet. You have no money in the bank, you have no money at all"...
 
