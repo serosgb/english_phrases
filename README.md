@@ -2,6 +2,21 @@
 
 > Learn the English Phrases
 
+##  TO SECOND-GUESS YOURSELF and GUESS WHAT
+
+<a href="https://www.youtube.com/watch?v=s55LgUpWCbU" target="_blank">Video</a>
+
+[Transcript](transcripts/20211119/README.md)
+
+###  TO SECOND-GUESS YOURSELF
+
+..."When you second-guess yourself, it means you've made a decision, but now you're doubting whether that was a good decision. Right now, I'm wearing a jacket, and it's a little colder than I expected. So I'm starting to second-guess myself."...
+
+###  GUESS WHAT
+
+..."This is a phrase we use when we're talking to someone when we have news to share, but we want the person to try and guess what that news is."...
+
+
 ## ON PURPOSE and BY ACCIDENT
 
 <a href="https://www.youtube.com/watch?v=WIGm2QOTQUE" target="_blank">Video</a>
