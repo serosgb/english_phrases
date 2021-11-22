@@ -2,6 +2,22 @@
 
 > Learn the English Phrases
 
+## A SLIM CHANCE and BY ANY CHANCE
+
+<a href="https://www.youtube.com/watch?v=D-UndvqVKR0" target="_blank">Video</a>
+
+[Transcript](transcripts/20211122/README.md)
+
+
+### A SLIM CHANCE
+
+..."When you say there is a slim chance that something will happen, it means that it might happen. It means that there's a chance it won't happen, but there's also a chance that it will happen. A slim chance."...
+
+### BY ANY CHANCE
+
+..."Now I use this when I ask a question to make the question somewhat polite. I'll sometimes say things like this, "You don't, by any chance, know how to get to the airport." "You don't, by any chance, know how to get to the museum." It's a little phrase I add that basically means, is it possible that you know this? And it makes the question a little bit more polite."...
+
+
 ##  TO SECOND-GUESS YOURSELF and GUESS WHAT
 
 <a href="https://www.youtube.com/watch?v=s55LgUpWCbU" target="_blank">Video</a>
