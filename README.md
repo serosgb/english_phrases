@@ -2,6 +2,17 @@
 
 > Learn the English Phrases
 
+## LET SLEEPING DOGS LIE and DOG-TIRED
+<a href="https://www.youtube.com/watch?v=PJF8VBUdUw8" target="_blank">Video</a>
+
+[Transcript](transcripts/20211124/README.md)
+
+### DOG-TIRED
+..."This is a phrase we use to talk about a situation where there was a conflict or an argument, and it's now settled down, and there's a bit of peace. And then, if someone wants to start arguing again, we say, hey, it might be best right now to let sleeping dogs lie."...
+
+### DOG-TIRED
+..."When you're dog-tired, it means you're really, really tired. At the end of a long day's work, sometimes I'm dog tired. Sometimes I'm just really tired at the end of a long day."...
+
 ## A SLIM CHANCE and BY ANY CHANCE
 
 <a href="https://www.youtube.com/watch?v=D-UndvqVKR0" target="_blank">Video</a>
